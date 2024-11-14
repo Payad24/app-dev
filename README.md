@@ -31,6 +31,7 @@ As the series’ name suggests. It is about music. A rock and a band by the name
 These songs do have meaning to them, as it was written by Hitori Gotoh herself. Because of this, their lyrics do have a melancholy theme to them, however with the cheeriness of Kita Ikuyo’s vocals, this negates and harmonizes those two things which makes them great. The lyrics and music are both catchy. Which I myself listened to probably hundreds of times already. 
 
 **PART VI – OF THE BAND IN WHICH IS RELATED TO THE PREVIOUS BAND, SICK HACK AND OTHER VARIOUS ROLE MODELS**
+
 ![alt text](seika.jpg)
 Throughout the series we are introduced to various characters that guides the young heroines. The first of which is Seika Ijichi. She is the owner of the bar where the band performs and is a sister of Nijika. She was the first one that gave Hitori a job which helped her in improving herself. Her business partner is PA-san. Which controls the sound system of the bar. Together they helped the band in reaching new heights by allowing them to perform gigs.
 The next one we meet is Hiroi Kikuri. This character serves as the mentor to Hitori. While Hitori has been peer-pressured to go beyond her boundaries. It is Hiroi who taught her to do so by herself. To push her limits and to stand on her own feet, without needing others.
