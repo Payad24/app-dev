@@ -9,9 +9,10 @@ To know about Bocchi the Rock is to be one of the enlightened. It is to bask in 
 
 ## PART II – WHERE THE HISTORY OF THE SERIES WAS LAID UPON ## 
 
-Bocchi the Rock is a manga series which has recently gotten an anime adaptation which has rock the world. It aired back in 2022, and still has a large following up to this day. Most notably, it had released 2 recap movies, a musical play, multiple albums and live concerts.
 
-Even in the Philippines it has garnered a rockillion amount of followers. With it spouting multiple amounts of memes such as Kita being a Filipino. There was also a spike of anime merchandise and cosplays shortly after that. You could not go to a single anime convention event without spotting atleast three Bocchi the Rock cosplays. 
+Bocchi the Rock is a manga series which has recently gotten an anime adaptation which has `rock` the world. It aired back in 2022, and still has a large following up to this day. Most notably, it had released 2 recap movies, a musical play, multiple albums and live concerts.
+
+Even in the Philippines it has garnered a `rockillion` amount of followers. With it spouting multiple amounts of memes such as Kita being a Filipino. There was also a spike of anime merchandise and cosplays shortly after that. You could not go to a single anime convention event without spotting atleast three Bocchi the Rock cosplays. 
 
 ## PART III – WHEREIN THE NARRATIVE OF BOCCHI THE ROCK IS DISCUSSED ## 
 
@@ -21,7 +22,8 @@ Even in the Philippines it has garnered a rockillion amount of followers. With i
 >
 > Ryo Yamada
 
-The series follows a young girl, a legend in the making, Hitori Gotoh. Where she goes through her everyday life as a student stumbling to find a way to achieve her dream. Eventually, overcoming her social anxiety she triumphed and rocked over her obstacles, as she becomes Bocchi the Rock!
+The series follows a young girl, a legend in the making, Hitori Gotoh. Where she goes through her everyday life as a student stumbling to find a way to achieve her dream. Eventually, overcoming her social anxiety she triumphed and `rocked` over her obstacles, as she becomes Bocchi the Rock!
+
 
 The core of the story is about self-improvement. To be better than which you were yesterday. To take up challenges and push yourself beyond your boundaries so that you can be the person you wish to be. Of course, Hitori would not be able to do any of those by herself. As is shown by in Episode 1 - 7:37, where Nijika had to drag Hitori to her first gig. Eventually though, Hitori grew as a character throughout the series. To the point where she was the one that was dragging her band to perform in a contest, a Battle of the Bands if you will.
 
@@ -34,7 +36,8 @@ Of course, the series would not be complete without the comedy. In this regard, 
 
 ## PART V – OF THE MUSIC CONTRIVED BY THE KESSOKU BAND ## 
 
-As the series’ name suggests. It is about music. A rock and a band by the name of Kessoku Band in which Hitori Gotoh is a part of. This band has the members:
+As the series’ name suggests. It is about music. A `rock` and a band by the name of Kessoku Band in which Hitori Gotoh is a part of. This band has the members:
+
 - Nijika Ijichi
 - Kita Ikuyo
 - Ryo Yamada
